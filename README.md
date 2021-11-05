@@ -4,6 +4,13 @@ I’m interested many things. Pofessionally I work as a consultant as an IT Ente
 
 As for hobbbies I have two main interest (in addion to IT of course), and that is photography and competition shooting.
 
+My websites:
+
+- [The Quiet Landscape](https://www.ronnynilsen.com/)
+- [Ronny Nilsen](https://www.ronnynilsen.net/)
+- [PistolSkyting.Info](https://www.pistolskyting.info/)
+- [Skar Nilsen](https://www.skar-nilsen.com/) (Only authorised users)
+
 ![Factory Butte](https://www.ronnynilsen.com/pictures/large/20181101-8140-Pano.jpg)
 
 <!---
